@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @isacespinozamontes.
+- 👀 I’m interested in structural equation
